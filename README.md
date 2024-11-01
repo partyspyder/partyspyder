@@ -62,7 +62,7 @@
 ![](https://nustuff.carrd.co/assets/images/gallery26/1f9d95bc.gif?v=0a15e1db)
 ![](https://64.media.tumblr.com/2d4b28c3ec4d1b79fbc79cdd711cf356/d3abe813af06eb03-af/s100x200/4eff5f4c24b0841d767cc7e0d8814144ed1aa631.gifv)
 ![](https://64.media.tumblr.com/677a0385bbf2a2ae4ecc901d7ecf71fd/2789c352317c8fac-a9/s100x200/7f4930f809f8cbd67722f780b887d0f593da4563.jpg)
-![](https://nustuff.carrd.co/assets/images/gallery27/fe92b046.jpg?v=0a15e1db)
+![](https://64.media.tumblr.com/245f74b6a7f4a7d9502752513a69f98f/f40ec855586ae221-2d/s100x200/782ea515e76ed134e54672f8f4a87a80d04e02be.pnj)
 ![](https://nustuff.carrd.co/assets/images/gallery27/b6e0188c.gif?v=0a15e1db)
 ![](https://nustuff.carrd.co/assets/images/gallery27/51936453.png?v=0a15e1db)
 ![](https://nustuff.carrd.co/assets/images/gallery27/8e1ba557.gif?v=0a15e1db)
