@@ -107,7 +107,7 @@
 ![](https://y2k.neocities.org/stamps2/tumblr_poff5ya5V01y8ua8do3_100.webp)
 ![](https://y2k.neocities.org/stamps2/tumblr_pofep92i1H1y8ua8do8_100.png)
 ![](https://y2k.neocities.org/stamps2/tumblr_pqr0kiKHmP1vafdqu_540.png)
-![](https://64.media.tumblr.com/17e7f51e27c14f4360739a4113306e51/473928ea48888009-16/s100x200/4a5cf44a6826e8a31ad60bdfcd9598dac73eddeb.jpg)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c40e6fad-0907-49ea-aa20-249fb71d1ea8/d3ht74f-82239007-27d1-4673-a3e2-14a863dfc11d.jpg/v1/fill/w_99,h_56,q_75,strp/i_love_girls_stamp_by_tobi__weasel_d3ht74f-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC9jNDBlNmZhZC0wOTA3LTQ5ZWEtYWEyMC0yNDlmYjcxZDFlYThcL2QzaHQ3NGYtODIyMzkwMDctMjdkMS00NjczLWEzZTItMTRhODYzZGZjMTFkLmpwZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.EXy0cuo7goeihqTHT-Vtctk32Lgu733gydEnwL5SLv8)
 ![](https://64.media.tumblr.com/cf7afc875178a62853e0ee6847577fb3/8f3b966c768a7a38-9d/s100x200/c6da937ca1bd8a359498b7e5043c734fd949a801.gifv)
 ![](https://64.media.tumblr.com/6d0b7b934958c7ff4945ffd9f53fcf94/ff58a3af22f3bbb7-2e/s100x200/a5f87ef7cdfd85779cacfb3f0729460a00690176.pnj)
 ![](https://64.media.tumblr.com/49d942d916bd0deed7a5ed1a7b4fe1d9/3bf62ad8d20f8b2a-4e/s100x200/f2fc5bfe0ec035cda2785293df48caee29215f44.gifv)
