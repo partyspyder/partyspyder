@@ -100,6 +100,7 @@
 ![](https://y2k.neocities.org/stamps2/464323536_by_gaphals-dc6nyx6.gif)
 ![](https://y2k.neocities.org/stamps2/_game_over__by_redkuu-da81jk3.png)
 ![](https://64.media.tumblr.com/b31818954a22de7859072ee7da8680fa/60c49499c3a49c5a-cb/s100x200/bf80ca066f7c80fe843c727b54b96bdd9bc16561.pnj)
+![](https://64.media.tumblr.com/3f02258aa2f363192fc030ff0781f7b3/efdca3f8bbb11e11-ad/s100x200/21ab13deb08f20fe52f9c8878869f020c5f52201.gifv)
 ![](https://y2k.neocities.org/stamps2/_stamp_bloodborne__doll_by_professorblood2004-dc5gwtv.png)
 ![](https://y2k.neocities.org/stamps2/cats_louis_wayne_1_stamp_by_chuchucolate-d6duath.png)
 ![](https://y2k.neocities.org/stamps2/pp%20(2).png)
