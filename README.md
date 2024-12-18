@@ -1,7 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=partyspyder&color=6b0b0b)  
-
+![](https://komarev.com/ghpvc/?username=partyspyder&label=fiends&color=6b0b0b)
 
   <p>
     <img src="https://media1.tenor.com/m/HMR0CBLq6RUAAAAd/byler-one-wheat-mark.gif" />
